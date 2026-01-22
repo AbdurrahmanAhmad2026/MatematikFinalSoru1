@@ -1,4 +1,4 @@
-<img width="705" height="627" alt="image" src="https://github.com/user-attachments/assets/908a4ea5-8644-4b30-a2e3-b6dadb9d3ed2" />Ad Soyad: ABDURRAHMAN AHMAD 
+Ad Soyad: ABDURRAHMAN AHMAD 
 
 Öğrenci No: 2507020018
 
